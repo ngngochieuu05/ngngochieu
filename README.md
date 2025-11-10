@@ -32,7 +32,7 @@ Mình là sinh viên ngành **Công nghệ Thông tin** hiện đang học tại
 - 📧 Email: bimax12052005@gmail.com  
 - 💼 LinkedIn: [ngoc-hieu-ng-b6b756281]([https://linkedin.com/in/hieungngoc](https://www.linkedin.com/in/ngoc-hieu-ng-b6b756281/))  
 - 🌐 Website cá nhân: [hutechhieu.azdigi.shop]([https://your-website.com](https://hutechhieu.azdigi.shop/))
--  F  Facebook cá nhân: [Ng Ngoc Hieu]([https://www.facebook.com/ng.ngoc.hieu.37427))
+-  F  Facebook cá nhân: [Ng Ngoc Hieu]([https://www.facebook.com/ng.ngoc.hieu.37427)
 ---
 
 Cảm ơn bạn đã ghé qua trang của mình! Nếu bạn cũng yêu thích công nghệ, hãy kết nối với mình nhé!
